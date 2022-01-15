@@ -1,2 +1,2 @@
 # Propertywebsite
-https://pankajsingh12015448.github.io/Propertywebsite/  Tap here for quick review of my website .
+https://pankajsingh12015448.github.io/Creating-Property-website/  Tap here for quick review of my website .
